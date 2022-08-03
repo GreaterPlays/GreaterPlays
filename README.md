@@ -6,5 +6,5 @@ profile picture)
 - 💞️ I’m looking to collaborate on making games in Scratch
 - 📫 How to reach me is to use my email greateriscool@gmail.com
 
-<!---
+
 
